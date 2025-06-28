@@ -1,6 +1,6 @@
 # 九紫离火云官网地址
 
-最新地址：[123xxx456.xyz](https://yes.123www456.top/#/register?code=GiCfNyKU)
+最新地址：[123xxx456.xyz](https://cc1.123kpl456.top/#/register?code=vgVuOEwq)
 
 ## 九紫离火云介绍
 
